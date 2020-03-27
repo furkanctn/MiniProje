@@ -1,0 +1,1 @@
+# MiniProje Açıklama Dökümanı
